@@ -1,4 +1,4 @@
-## Hi there 👋
+<img width="735" height="786" alt="Image" src="https://github.com/user-attachments/assets/07e7a557-adf0-4bea-b129-0cffeb1b1aa3" />
 
 <!--
 **lingeringshadow/lingeringshadow** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
