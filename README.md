@@ -11,4 +11,4 @@ $${\color{#545454} Heavy\space\space Itoshi\space\space Rin\space\space Fictionk
 
 $${\color{#989898} Basic\space\space dni\space\space +\space\space trump\space\space supporters /\space\space ice\space\space dni\ }$$
 
-$${\color{#545454} Six\space\space is\space\space the\space\space most\space\space awesome\space\space person\space\space I've\space\space met\space\space <3 }$$
+$${\color{#545454} Six\space\space is\space\space the\space\space most\space\space lovely\space\space person\space\space I've\space\space met\space\space <3 }$$
