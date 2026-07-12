@@ -1,6 +1,6 @@
 <img width="735" height="786" alt="Image" src="https://github.com/user-attachments/assets/07e7a557-adf0-4bea-b129-0cffeb1b1aa3" />
 
-$${\color{#989898} (\ ciel\  /\  ryuki\ )\ }$$$${\color{#545454} he\ /\ him\ }$$
+$${\color{#989898} (\ Ciel\  /\  Ryuki\ )\ }$$$${\color{#545454} he\ /\ him\ }$$
 
 $${\color{#989898} I\ don't\ usually\ int\ first\ ◞\ mostly\ offtab\ or\ afk\ ◞\ pls\ whisp2i\ to\ grab\ my\ attention\ ｡\  }$$
 
