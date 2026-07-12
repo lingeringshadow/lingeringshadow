@@ -4,11 +4,11 @@ $${\color{#989898} (\ ciel\  /\  ryuki\ )\ }$$$${\color{#545454} he\ /\ him\ }$$
 
 $${\color{#989898} I\ don't\ usually\ int\ first\ ◞\ mostly\ offtab\ or\ afk\ ◞\ pls\ whisp2i\ to\ grab\ my\ attention\ ｡\  }$$
 
-$${\color{#989898} Pls\ iwec\ at\ all\ times\ because\ I\ can\ be\ aggressive\ sometimes\ and\ won't\ think\ about\ my\ words\ }$$
-$${\color{#545454} Int\ freely\ unless\ stated\ otherwise\ ◞\ I'm\ not\ really\ good\ with\ conversations\ }$$
+$${\color{#989898} Pls\ iwec\ at\ all\ times\ because\ I\ can\ be\ aggressive\ sometimes\ and\ won't\ think\ about\ my\ words\ ｡\ }$$
+$${\color{#545454} Int\ freely\ unless\ stated\ otherwise\ ◞\ I'm\ not\ good\ with\ conversations\ ｡\ }$$
 
-$${\color{#545454} Heavy\ Itoshi\ Rin\ Fictionkin\ so\ you\ can\ pretty\ much\ guess\ how\ I'll\ act\ ◞\ so\ iwec\ and\ be\ aware\ }$$
+$${\color{#545454} Heavy\ Itoshi\ Rin\ Fictionkin\ so\ you\ can\ pretty\ much\ guess\ how\ I'll\ act\ ◞\ iwec\ and\ be\ aware\ ｡\ }$$
 
-$${\color{#989898} Basic\ dni\ +\ radquuer\ +\ transphobes\ }$$
+$${\color{#989898} Basic\ dni\ +\ radquuer\ +\ transphobes\ dni\ }$$
 
 $${\color{#545454} Six\ is\ the\ most\ awesome\ person\ I've\ met\ <3\ }$$
